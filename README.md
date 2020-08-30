@@ -1,0 +1,1 @@
+The recipe of tea is a very short one. Tea is drunk by many people across India. It was invented in China. People drink it according to their needs. It makes us feel fresh and ready to do work. I am going to explain you how to make tea for 2 people.
